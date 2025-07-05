@@ -1,0 +1,1 @@
+this project is gonna be build by cursor soon
